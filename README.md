@@ -1,1 +1,1 @@
-Bom, Shiva!
+Jaya Guru
